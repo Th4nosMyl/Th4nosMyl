@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Computer Science Student
 ------------------------
 
-Hello! I am a computer science student thriving in the vibrant city of Athens. So engrossed in data manipulation, so I am on a mission to uncover some hidden truths within numbers. However, it goes far beyond lecture rooms and algorithms for me. Life is an unfolding classroom and I am here just for it. Eager to unravel the intricacies of data but maybe more importantly, a perennial life learner At least every new lesson regardless of how small or big it could be does slowly mold me into a better me. The beauty of knowledge lies in its endlessness. Not only do I open my mind to learning, but I also embrace it completely. The more information you have, the greater contribution you can make; hence an unending cycle that drives my personal and professional growth forward.
+Hello! I am a computer science student thriving in the vibrant city of Athens. I am engrossed in data manipulation and trying to uncover some hidden truths within numbers. However, it goes far beyond lecture rooms and algorithms for me. Life is an unfolding classroom and I am here just for it. Eager to unravel the intricacies of data but maybe more importantly, a perennial life learner At least every new lesson regardless of how small or big it could be does slowly mold me into a better me. The beauty of knowledge lies in its endlessness. Not only do I open my mind to learning, but I also embrace it completely. The more information you have, the greater contribution you can make; hence an unending cycle that drives my personal and professional growth forward.
 
 *   🌍  I'm based in Athens, Greece
 
